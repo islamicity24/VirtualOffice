@@ -4,7 +4,7 @@ and coworking.islamicity.tv dibutuhkan banyak agar banyak Usaha Komunitas Masjid
 
 Yuk Semua Belajar kepada Allah SWT dengan mengisi http://potensi.islamicity.tv 
 
-melalui distand eLearning http://gil.tecs.islamicity.tv
+melalui distand eLearning Trainig Education Coach Course Seminar Workshop http://gil.tecs.islamicity.tv
 
 
 
